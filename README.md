@@ -35,6 +35,9 @@ With a solid foundation in **software development**, **IT governance**, and **sy
 ## Contact Information  
 Feel free to reach out for collaboration or inquiries:  
 ✉️ **Email:** [anjarw.sasongko@gmail.com](mailto:anjarw.sasongko@gmail.com)
+ 
+Join the **Sasongko’s Digital Frontier** community and explore the tech universe together!  
+[**Click here to enter the frontier!**](https://discord.gg/p3x5R647)
 
 ## Favorite Quote  
 > "Put your whole heart into your work, doing it for the Lord rather than for human praise." ✨
